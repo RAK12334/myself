@@ -1,4 +1,4 @@
-👋 Hi, I’m Mahesh R
+👋 Hi, I’m Rakesh P
 👀 I’m currently pursuing my BE in Information Science and Engineering.
 🌱 I’m interested in learning new technologies and tech related stuff
 💞️ I’m looking to collaborate with giant techies to showcase my skills
